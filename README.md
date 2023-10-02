@@ -1,4 +1,4 @@
-## Opa, baum? Só um pouquinho dos meus projetos/trabalhos :))
+## Opa, baum? Fique a vontade 😁
 
  <div>
    <a href="https://github.com/Msumii">
